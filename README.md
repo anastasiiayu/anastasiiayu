@@ -27,8 +27,8 @@
 - Brain-inspired learning algorithms
 
 ### 📫 How to reach me
-- Email: [your.email@example.com]
-- LinkedIn: [your LinkedIn link]
+- Email: mails2anastasiia@gmail.com
+- LinkedIn: https://www.linkedin.com/in/anastasia-yu-260aab287?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 
 
 ### ⚡ Fun fact
